@@ -1,1 +1,1 @@
-# my name is Baudride Mbaya
+# Let talk finance 101
